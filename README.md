@@ -5,12 +5,12 @@
 - 📫 How to reach me ... msbaig096@gmail.com or Call at : +92-3008211836
 - I'm doing a business related to travel & tourism, form filling up and document preperation services and complete support for US, Canada & Europe Visas,  visit my website at : https://msbaig096.wixsite.com/travel-adventures and at facebook:  https://www.facebook.com/Travelexhilarate/
 - I'm also running a business of Jewellery in the name of Jaddah Jewellers, facebook page ID: https://www.facebook.com/JaddahJewelers and at: https://msbaig096.wixsite.com/jaddahjewelers
-- Under progress my business of Gems & Pearls mostly from Pakistan & Iran under the name of Enchanted Pearls. website is in progress.
+- Registered with FBR my business of Gems & Pearls mostly from Pakistan & Iran under the name of Enchanted Pearls. 
 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
 <!---
-Mirza096/Mirza096 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Mirza096/ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
